@@ -1,7 +1,8 @@
-random faxom bullshit nemoigtksmõgblksdtmgbklmd,gk lksrg
+random faxom bullshit nemoigtksmÃµgblksdtmgbklmd,gk lksrg
 adf
-ú gsd
-fh áfg
-h éf
-j dlgh,ldh kéd
-fdõ ngúfadf,]dú ûgsdfa é dlghg.sag
+Ãº gsd
+fh Ã¡fg
+h Ã©f
+j dlgh,ldh kÃ©d
+fdÃµ ngÃºfadf,]dÃº Ã»gsdfa Ã© dlghg.sag
+Ez mÃ¡r nem blabla szÃ¶veg. ........ .. . . . .. . . . . .. . .
